@@ -5,8 +5,11 @@ Social-Media, the Web, ???, ??? — these are all technologies that are ubiquito
 
 # Punk
 
+I am a child of the 1970s & 1980s.
 I grew up associating the word _"punk"_ with
 colorful mohawks & spikey hair,
 with black leather jackets covered in shiny metal studs,
 and
-with a genre of loud, fast paced, energetic music utilizing electric guitars and loud drums.
+with a genre of loud, fast paced, energetic music utilizing electric guitars and loud drums — known as **punk rock**.
+
+"**Punk**", originally derogatory slang used to call someone an _insignificant, worthless person_, took an a new meaning due to the _punk rock_ music movement of the 1970s and 1980s.
