@@ -12,4 +12,14 @@ with black leather jackets covered in shiny metal studs,
 and
 with a genre of loud, fast paced, energetic music utilizing electric guitars and loud drums — known as **punk rock**.
 
-"**Punk**", originally derogatory slang used to call someone an _insignificant, worthless person_, took an a new meaning due to the _punk rock_ music movement of the 1970s and 1980s.
+"**Punk**"
+—
+originally derogatory slang used to call someone an _insignificant, worthless person_, and with negative connotations, sometimes suggesting a person was a _fool_ or a _scoundrel_
+—
+took an a new meaning due to the _punk rock_ music movement of the 1970s and 1980s.
+
+**Punk** became a word used to mean
+—
+????.
+
+
